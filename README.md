@@ -6,7 +6,11 @@
 
 **dni** ;; exclusionists, toothpaste flag users, believe in reverse racism, blackwashing, cisphobia, heterophobia etc, under 16, general dnf, the names aiko &&. gold, kinnies &&. DAs who won't respect fictives, mike kinnies / people who hate mike
 
-ensemble stars, mcyt, aot, danganronpa, bnhatwt, fnf, mogeko &&. genshintwt also dnf / dni ( current mutuals as of 12th October 2021 ok )
+**fandom dni** ;; owari no seraph, fnf, mogeko, mcyt, aot
+
+**fandom dni unless i interact first** ;; ensemble stars, bnha
+
+**uncomfy fandoms but ok to int just don't be a freak** ;; danganronpa, genshin
 
 **interests** ;; *clowns*, *identity v*, fire emblem, *theatre, geoscience*, cookie run, undertale, *deltarune*
 
