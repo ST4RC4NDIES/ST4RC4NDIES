@@ -12,7 +12,12 @@
 
 **other** ;; i dont kin but being associated with linhardt von hevring, rockstar cookie, mettaton, jevil, spamton &&. rouxls kaard is neat
 
-tonton int is ok just dont be a freak, ship int in general ok unless specified otherwise
+***don't call me names like whore / slut even as a joke lol***
+
+
+**interaction / ship interaction** ;; i'm ok with tonton - int is ok just dont be a freak. if i interact with you when you're norton, or am sitting with a norton, don't assume it's tonton interaction though
+
+ship int in general ok unless specified otherwise
 
 i am OKAY with hxs but i dont like joscarl, haseli, antoniodrew, luchinort or jacknaib, sorry. I SHIP ADAEMIL but only if ppl aren't freaks about it. EmiEmily / any kreacher ships dni ( freacher included )
 
@@ -20,5 +25,4 @@ you can cuddle / boop / kiss / crown idc; just leave me alone if my name specifi
 
 i'm okay with strangers interacting so long as you don't violate dni + are 16+ ^_^
 
-***don't call me names like whore / slut even as a joke lol***
 
