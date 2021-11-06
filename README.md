@@ -6,11 +6,7 @@
 
 **dni** ;; exclusionists, toothpaste flag users, believe in reverse racism, blackwashing, cisphobia, heterophobia etc, under 16, general dnf, the names aiko &&. gold, kinnies &&. DAs who won't respect fictives, mike kinnies / people who hate mike
 
-**fandom dni** ;; owari no seraph, fnf, mogeko, mcyt, aot
-
-**fandom dni unless i interact first** ;; ensemble stars, bnha
-
-**uncomfy fandoms but ok to int just don't be a freak** ;; danganronpa, genshin
+**ask to interact** ;; owari no seraph, fnf, mogeko, mcyt, aot, ensemble stars, bnha, danganronpa, genshin
 
 **interests** ;; *clowns*, *identity v*, fire emblem, *theatre, geoscience*, cookie run, undertale, *deltarune*
 
@@ -18,9 +14,11 @@
 
 tonton int is ok just dont be a freak, ship int in general ok unless specified otherwise
 
-typically no td but dni if td is in my name; usually tc
+i am OKAY with hxs but i dont like joscarl, haseli, antoniodrew, luchinort or jacknaib, sorry. I SHIP ADAEMIL but only if ppl aren't freaks about it. EmiEmily / any kreacher ships dni ( freacher included )
 
-i'm okay with strangers interacting so long as you don't violate dni + are 16+
+you can cuddle / boop / kiss / crown idc; just leave me alone if my name specifies so
+
+i'm okay with strangers interacting so long as you don't violate dni + are 16+ ^_^
 
 ***don't call me names like whore / slut even as a joke lol***
 
