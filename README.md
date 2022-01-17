@@ -1,28 +1,15 @@
-**THE CARNIVAL SYSTEM HAS MANY ALTERS, BUT ONLY TWO FREQUENT PONYTOWN**
+THE CARNIVAL system is a traumagenic osdd - 1a system. collective pronouns are they / its. only three members of the system use ponytown, where i assume you're from, though, so only information regarding them is provided. please do not ask about the others in the system unless we're close, as to respect their privacy &&. to keep us safe. we do not owe any of you anything.
 
-**about** ;; jet, 20 (same as body age), it / stars, tme, white, birom asexual polyam, trans masc, system host
+**BODY** 20, scottish, autistic, t1d &&. trichotillomania
 
-**about 2** ;; harley, 25, she / they / it / stars, tme, white, bisexual, bigender, fictive of mike morton / persecutor, occasionally semi / non verbal, please be aware of that
+**JET** host, 20, it / stars / jests, bigender poly birom, taken - " delusional attachment " to fiona gilman &&. rosaria, though fictives / introjects of either always come before me.
 
-**dni** ;; exclusionists, toothpaste flag users, believe in reverse racism, blackwashing, cisphobia, heterophobia etc, under 16, general dnf, the names aiko &&. gold, kinnies &&. DAs who won't respect fictives, mike kinnies / people who hate mike
+**HARLEY** introject of mike morton (idv) / persecuter, 25, she / they / stars / its, bigender bisexual
 
-**ask to interact** ;; owari no seraph, fnf, mogeko, mcyt, aot, ensemble stars, bnha, danganronpa, genshin
+**SAWYER** protector, 17, he / they, nonbinary aroace
 
-**interests** ;; *clowns*, *identity v*, fire emblem, *theatre, geoscience*, cookie run, undertale, *deltarune*
+**BYF** comfortable with hxs bar a few ships; do not assume i am sitting with someone for ship purposes - that's weird &&. uncomfortable for everyone involved; we don't tend to say slurs even as a joke, however, if we do, it is ones that we can reclaim; i make kill yourself jokes only with close friends - do not make these types of jokes towards any of us unless a close friend; i usually don't mind people sitting with me / boops / kisses unless my name specifies a td - crowns / giving items is always okay; i ship nortmike, &&. it is a huge comfort for harley - we both despise the abusive portrayals of it &&. would prefer you not to talk about it, nor trash tonton excessively around us; please don't approach us on a owari no seraph pony; genshin / danganronpa ask to interact
 
-**other** ;; i dont kin but being associated with linhardt von hevring, rockstar cookie, mettaton, jevil, spamton &&. rouxls kaard is neat
+**DNI** if you have a " delusional attachment " and value yourself over fictives / introjects; " irl mike morton ", " irl ena " or " irl chara " ( ok if you take irl out of the name / change pony / do not bring it up to any of us ); pro - shippers ( kaeluc included, assholes ); do not ship interact with me with hasteli / luchinort / jacknaib, most others are okay; believe / support endogenic systems; disrespect td / tt; transmed / terf / radfem; *fan of any of the following:* south park, dsmp, mogeko, hazbin hotel / helluva boss, yarichin bitch club, yandere simulator, attack on titan, ensemble stars
 
-***don't call me names like whore / slut even as a joke lol***
-
-
-**interaction / ship interaction** ;; i'm ok with tonton - int is ok just dont be a freak. if i interact with you when you're norton, or am sitting with a norton, don't assume it's tonton interaction though
-
-ship int in general ok unless specified otherwise
-
-i am OKAY with hxs but i dont like joscarl, haseli, antoniodrew, luchinort or jacknaib, sorry. I SHIP ADAEMIL but only if ppl aren't freaks about it. EmiEmily / any kreacher ships dni ( freacher included )
-
-you can cuddle / boop / kiss / crown idc; just leave me alone if my name specifies so
-
-i'm okay with strangers interacting so long as you don't violate dni + are 16+ ^_^
-
-
+**INTERACT** if you want to play idv with me; transformer / vocaloid / undertale / deltarune enjoyers; theatre studies students; other systems !
