@@ -1,6 +1,6 @@
 **BODY** 21, scottish, autistic, t1d &&. trichotillomania
 
-my name is jet / forrest. i'm bigender, asexual and queer ( cannot figure out if i'm bi or a lesbian so bear w me lol ). do not gender me at all. sometimes other alters use this account, so just ask if you *must* know who is fronting. asking for socials is ok if we're friends; asking for disc is ok generally
+my name is jet / forrest. i'm bigender, asexual and queer ( cannot figure out if i'm bi or a lesbian so bear w me lol ). do not gender me at all. pronouns are it / stars / jests. sometimes other alters use this account, so just ask if you *must* know who is fronting. asking for socials is ok if we're friends; asking for disc is ok generally
 
 **BYF** i'm comfortable with hxs bar a few ships; do not assume i am sitting with someone for ship purposes ( if you need to know, just whisper ); i usually don't mind people sitting with me / boops / kisses unless my name specifies a td - crowns / giving items is always okay; please don't approach us on a owari no seraph, enstars or mogeko pony; if any of us have " nv / sv " in our name, you can interact, just don't expect us to hold conversation; we tend to hide behind people if they cuddle us, don't worry about covering us unless we have tt / td / dnt / dni in our name; i do NOT like bylethxstudent or any ship with a 10+ age gap ( or over 1 year if 18- ); i hate sonamy also amy is a lesbian; i hc most characters as bigender or trans in some way and i won't apologise
 
