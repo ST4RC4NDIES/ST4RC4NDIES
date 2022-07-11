@@ -1,15 +1,11 @@
-THE CARNIVAL system is a traumagenic osdd - 1b system. collective pronouns are they / its. only three members of the system use ponytown, where i assume you're from, though, so only information regarding them is provided. please do not ask about the others in the system unless we're close, as to respect their privacy &&. to keep us safe. we do not owe anyone any information unless for safety reasons.
+**BODY** 21, scottish, autistic, t1d &&. trichotillomania
 
-**BODY** 20, scottish, autistic, t1d &&. trichotillomania
+my name is jet / forrest. i'm bigender, asexual and queer ( cannot figure out if i'm bi or a lesbian so bear w me lol ). do not gender me at all. sometimes other alters use this account, so just ask if you *must* know who is fronting
 
-**JET** host, 20, it / stars / jests, bigender
+**BYF** i'm comfortable with hxs bar a few ships; do not assume i am sitting with someone for ship purposes ( if you need to know, just whisper ); i usually don't mind people sitting with me / boops / kisses unless my name specifies a td - crowns / giving items is always okay; please don't approach us on a owari no seraph, enstars or mogeko pony; if any of us have " nv / sv " in our name, you can interact, just don't expect us to hold conversation; we tend to hide behind people if they cuddle us, don't worry about covering us unless we have tt / td / dnt / dni in our name; i do NOT like bylethxstudent or any ship with a 10+ age gap ( or over 1 year if 18- ); i hate sonamy also amy is a lesbian; i hc most characters as bigender or trans in some way and i won't apologise
 
-**HARLEY** introject of mike morton (idv), 25, she / they / stars / its
+**DNI** general dni, mike morton, ena or chara kins / irls; pro - shippers ( kaeluc included, assholes ); kreacher fan; emiemma / jacknaib or any other weird ship; believe / support endogenic systems; disrespect td / tt; transmed / terf / radfem; toothpaste flag user; under 16, over 28 ( body age ); *fan of any of the following:* toilet bound hanako kun, south park, dsmp, mogeko, hazbin hotel / helluva boss, yarichin bitch club, yandere simulator, attack on titan, ensemble stars; friday night funkin'
 
-**SAWYER** 17, he / they, nonbinary 
+**INT** if you wanna play idv with me, share fandoms with me, wanna talk about headcanons, or if you just wanna sit around lol
 
-**BYF** i'm comfortable with hxs bar a few ships; do not assume i am sitting with someone for ship purposes - that's weird &&. uncomfortable for everyone involved; i usually don't mind people sitting with me / boops / kisses unless my name specifies a td - crowns / giving items is always okay; please don't approach us on a owari no seraph pony; genshin / danganronpa ask to interact; if any of us hav " nv / sv " in our name, you can interact, just don't expect us to hold conversation; we tend to hide behind people if they cuddle us, don't worry about covering us unless we have tt / td / dnt / dni in our name
-
-**DNI** if you have a " delusional attachment " and value yourself over fictives / introjects; " irl mike morton ", " irl ena " or " irl chara " ( ok if you take irl out of the name / change pony / do not bring it up to any of us ); pro - shippers ( kaeluc included, assholes ); you ship jokermike / hasteli / luchinort / jacknaib / freacher / emiemma / kreacher with anyone actually, most others are okay; believe / support endogenic systems; disrespect td / tt; transmed / terf / radfem; kreacher excuser (/srs); toothpaste flag user; under 16, over 28 ( body age ); *fan of any of the following:* toilet bound hanako kun, south park, dsmp, mogeko, hazbin hotel / helluva boss, yarichin bitch club, yandere simulator, attack on titan, ensemble stars; friday night funkin'
-
-**INTERACT** if you want to play idv with me; transformer or undertale / deltarune enjoyers; theatre studies students; other systems; if you just want to cuddle / hide !
+**INTERESTS** *idv*, fire emblem, *lobotomy corporation*, library of ruina, transformers, sonic, junji ito, and general aviation
